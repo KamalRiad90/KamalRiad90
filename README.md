@@ -37,7 +37,7 @@ I'm an experienced **IT & Network Administrator** with over **8 years** in manag
 ## 💋 Let's Connect!
 📩 **Email**: kamal.riad.90@gmail.com  
 📍 **Location**: East Jerusalem, Palestine  
-🔗 **LinkedIn**: [in/kamalriad304]  
+🔗 **LinkedIn**: [https://www.linkedin.com/in/kamalriad304]  
 
 ---
 
